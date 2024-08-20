@@ -1,4 +1,4 @@
-![Screenshot 2024-08-20 230515](https://github.com/user-attachments/assets/a2ef7a71-2a5b-41d0-9def-5c75422e5acd)# Hero of Moore
+# Hero of Moore
 
 ## Overview
 
